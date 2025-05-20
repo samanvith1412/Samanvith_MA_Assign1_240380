@@ -1,0 +1,2 @@
+# Samanvith_MA_Assign1_240380
+Samanvith_Assignment 1 solutions
